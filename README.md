@@ -1,0 +1,1 @@
+https://alakaktyc.github.io/rsschool-cv/cv
